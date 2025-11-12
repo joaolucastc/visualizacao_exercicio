@@ -1,1 +1,0 @@
-# visualizacao_exercicio
